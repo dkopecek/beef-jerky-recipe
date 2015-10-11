@@ -7,7 +7,7 @@
  
 ## Ingredience
 
- * 1 Kg hovězího masa -- nejlépe hovězí zadní bok, může být i maso na roládu (Tesco)
+ * 1 Kg hovězího masa -- nejlépe hovězí zadní, může být i maso na roládu (Tesco)
  * Minimálně hrst pálivých chilly papriček
  * Worchester omáčka
  * Sojová omáčka
